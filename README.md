@@ -48,7 +48,7 @@ So the structure of the room is that there's a row of paintings going along the 
 
 ![IMG_8164](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/6803dc2f-7715-449f-a457-29c90849a614)
 
-![IMG_8127](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/1d7cd220-63e4-4475-a2ef-60fa3158d372)![IMG_8152](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/10209271-3f12-4db9-9ed0-19c12212a738)
+![IMG_8127](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/1d7cd220-63e4-4475-a2ef-60fa3158d372)
 
 ![IMG_8153](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/7bc07d3d-9569-4c4b-979d-68dfc3115477)
 
