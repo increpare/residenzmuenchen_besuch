@@ -2,7 +2,8 @@
 
 I went to the [Residenz Museum](https://www.residenz-muenchen.de/deutsch/museum/index.htm) in Munich today.  It has one room that I found particularly charming, the [Antiquarium](https://en.wikipedia.org/wiki/Antiquarium).
 
-It's a pretty amazing hall filled with paintings and latin quotes
+It's a pretty charming hall, filled with paintings and Latin quotes:
+
 ![IMG_8122](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/41123c32-74cd-43ba-a4dd-580f0d53ba6e)
 
 So the structure of the room is that there's a row of paintings going along the length of the ceiling.  Each painting illustrates some aspirational human characterisic (justice, charity, fame, etc). To either side of every painting there are two columns, and on each one there is a short+snappy Latin quote on the theme. 
