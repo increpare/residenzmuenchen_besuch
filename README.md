@@ -249,3 +249,4 @@ You thoguht that was the end of the couplets? Nope...
 
 ![IMG_8254](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/d2368511-4b6c-41dd-9009-093b68507f35)
 
+There are...many more photographs of other Latin couplets in my photo album, but I think I've reached the storage limit, and this page is already obnoxiously large. Anyway, if you're ever around Munich, and like Latin, the Royal Residence is to be recommended!
