@@ -118,8 +118,6 @@ So the structure of the room is that there's a row of paintings going along the 
 
 ## Prudentia
 
-![IMG_8173](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/0d9b0d66-187f-40fb-8e57-9b0b6af8e96a)
-
 ![IMG_8172](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/570b299c-1b53-4331-ad2a-abdab8cdd024)
 
 ![IMG_8137](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/90ccc808-4d47-4225-889a-54e87e40ee1f)
