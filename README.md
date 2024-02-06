@@ -126,15 +126,13 @@ So the structure of the room is that there's a row of paintings going along the 
 ![IMG_8145](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/9ed4caff-beff-4b41-94cf-5e333775cb35)
 
 
-## Veritas/Charitas
+## Charitas
 
 ![IMG_8173](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/59af00bd-dc84-430a-8175-3fa133404895)
 
 ![IMG_8138](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/262f0526-6e25-4187-8cb2-0862fbadacaa)
 
 ![IMG_8144](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/4428c3fc-39a8-4395-a9c0-6a0522e548bc)
-
-(did I make a mistake? these two don't seem to be so related...)
 
 ## Spes
 
