@@ -1,9 +1,11 @@
-# Visit to the Classics room of the Munich Residence
+# Visit to the Antiquarium of the Munich Royal Residence
 
-So there's this pretty amazing hall filled with paintings and latin quotes
+I went to the [Residenz Museum](https://www.residenz-muenchen.de/deutsch/museum/index.htm) in Munich today.  It has one room that I found particularly charming, the [Antiquarium](https://en.wikipedia.org/wiki/Antiquarium).
+
+It's a pretty amazing hall filled with paintings and latin quotes
 ![IMG_8122](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/41123c32-74cd-43ba-a4dd-580f0d53ba6e)
 
-Along the ceiling is a series of paintings, and coming off the side of each painting are latin quotes on the column that share a theme with the painting (some paintings are a bit generic to my eyes, but others are clearely on-theme).  
+So the structure of the room is that there's a row of paintings going along the length of the ceiling.  Each painting illustrates some aspirational human characterisic (justice, charity, fame, etc). To either side of every painting there are two columns, and on each one there is a short+snappy Latin quote on the theme. 
 
 ## Obedientia
 
@@ -151,7 +153,99 @@ Along the ceiling is a series of paintings, and coming off the side of each pain
 
 ![IMG_8142](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/67ad286a-9832-4b2e-baf9-ce0bda8a1afb)
 
+# Other Latin in the Residence
+
+The Residence is brimming with Latin, and elegaic couplets in particular.
+
+## Calendar Tapestries
+
+There's a series of giant tapestries for each month of the year, with Latin inscriptions on them.  Here are the ones I could get decent photos of (some had the inscriptions covered over by furniture...).
+
+![IMG_8185](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/36f4459f-d826-4f67-9fc1-4dea66f3ad50)
+
+![IMG_8186](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/e7ae5b04-2f5d-47a0-adea-9f44f3237606)
+
+![IMG_8188](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/685fa396-3234-4348-a1a8-918e6d168e40)
+
+![IMG_8190](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/29645261-5090-4aac-b2d6-e5726fb70d85)
+
+![IMG_8192](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/92a1015c-0652-425f-8d2d-a14f3e55aa5d)
+
+![IMG_8196](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/35dd198f-1395-45fd-9a86-a10845f7ec86)
+
+![IMG_8198](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/68182c18-84d1-44ad-b605-bef39b4b7c9e)
+
+![IMG_8200](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/2f2198a2-facd-488a-98ff-05b992e23daa)
+
+![IMG_8202](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/191ce4d0-3151-4038-b28f-20b9f826904a)
+
+Annoying!:
+![IMG_8208](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/359350f3-a2d3-43c0-b349-afcda4c1f0e0)
+
+## Tapestries of historical figures
+
+![IMG_8213](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/c42bb729-a672-46c4-b149-772525ab55b2)
+
+![IMG_8215](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/b220e931-b14d-4de1-8ed3-66baf94e583f)
+
+![IMG_8216](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/59764f08-0008-4e1e-bfc0-2c366b9f03c7)
+
+![IMG_8217](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/b1da2042-38aa-489e-8386-1ea7b69b85e2)
+
+![IMG_8219](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/14e1c537-47da-4e64-ba21-90f9284e1c94)
+
+## More Elegaic couplets
+
+You thoguht that was the end of the couplets? Nope...
+
+![IMG_8220](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/d30f3a5d-3d11-4332-a55b-4b8d9066e574)
+
+![IMG_8222](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/bc7127ce-955c-4915-ae00-318034f0284b)
+
+![IMG_8224](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/4409fe29-df5d-42a4-884d-23dca119cbdc)
+
+![IMG_8226](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/a1f73337-5464-447e-a3cc-f60ce1902064)
+
+![IMG_8228](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/679d4b24-8875-4327-872f-bd76cf6bdf0d)
+
+![IMG_8230](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/672f720d-3e02-4e04-8b8e-0bcb2920cbcb)
+
+![IMG_8232](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/b3b70bb2-a794-4c5e-8660-b900f39b1a92)
+
+![IMG_8234](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/7ea6adb5-3bfe-45df-8397-0affef93c371)
+
+![IMG_8236](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/d78adbcf-2d96-433e-a97b-9d2f87bc18b8)
+
+![IMG_8237](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/dbb0c169-eb2a-4ce5-a637-cce65497fada)
+
+![IMG_8238](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/169a1cad-552d-4452-b084-7573c500d840)
+
+![IMG_8239](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/a9d4eefa-f660-4b42-89c6-79251f7e9367)
+
+![IMG_8240](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/2c969046-378f-49e2-9420-c8124df0a62a)
+
+![IMG_8241](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/d2d6af7e-89e5-4320-b180-3c87971e7d8d)
+
+![IMG_8242](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/de4f6ea4-40cf-423e-a4ac-23c1a6db234a)
+
+![IMG_8244](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/a00e4a11-0fcf-484e-ad05-3f0f64a9658c)
 
 
+## Other Latin
 
+![IMG_8209](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/9a7a2c05-69b0-4724-9603-a6c1d4757a2b)
+
+![IMG_8195](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/ec6e62ba-eec2-440c-8ed6-c88ce35b3def)
+
+![IMG_8212](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/b7cdc358-63a5-4348-872b-c4aa4ce47f29)
+
+![IMG_8246](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/1e0bbbd7-a20c-4210-9c9e-a3eb8570b694)
+
+![IMG_8248](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/fda0c0e7-8923-42d5-bc6b-ae666ef4204d)
+
+![IMG_8249](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/f70338bc-8147-4747-b178-a0d1be028883)
+
+![IMG_8252](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/5c90f269-92e4-46d9-9e2e-df08d231af45)
+
+![IMG_8254](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/d2368511-4b6c-41dd-9009-093b68507f35)
 
