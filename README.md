@@ -152,7 +152,7 @@ So the structure of the room is that there's a row of paintings going along the 
 
 # Other Latin in the Residence
 
-The Residence is brimming with Latin, and elegaic couplets in particular.
+The Residence is brimming with Latin, and elegiac couplets in particular.
 
 ## Calendar Tapestries
 
@@ -191,7 +191,7 @@ Annoying!:
 
 ![IMG_8219](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/14e1c537-47da-4e64-ba21-90f9284e1c94)
 
-## More Elegaic couplets
+## More Elegiac couplets
 
 You thoguht that was the end of the couplets? Nope...
 
