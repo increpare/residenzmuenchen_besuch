@@ -193,7 +193,7 @@ Annoying!:
 
 ## More Elegiac couplets
 
-You thoguht that was the end of the couplets? Nope...
+You thought that was the end of the couplets? Nope...
 
 ![IMG_8220](https://github.com/increpare/residenzmuenchen_besuch/assets/465632/d30f3a5d-3d11-4332-a55b-4b8d9066e574)
 
